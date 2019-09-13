@@ -1,2 +1,2 @@
-# Gutierrez.Mu-oz.Jose.De.Jesus
+# 6 A
 Trabajos_6_A
